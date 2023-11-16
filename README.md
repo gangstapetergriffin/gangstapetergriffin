@@ -1,4 +1,5 @@
 - HAIIIIIII :3
+- ![HAIIIII](https://media.tenor.com/I79LXz-U-mwAAAAM/excited-kitten-kitty.gif)
 - im currently actively spreading misinformation on the internet.
 - im also very bad at coding 😊
 
